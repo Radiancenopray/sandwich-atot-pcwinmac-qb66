@@ -1,4 +1,4 @@
-# 
+# Official sandwich attack bot add-ons for Mac OS | Ultimate sandwich attack bot add-ons for PC Windows. Featuring data visualization and limit orders — optimized for maximum performance on every platform.
 
 
 
